@@ -1,4 +1,4 @@
 desmatamento
 na
-amazônia
+amazonia
 legal
